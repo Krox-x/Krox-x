@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: 
+- ⚡ Fun fact: I play CodM :P
 
 <!---
 Krox-x/Krox-x is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
