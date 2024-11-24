@@ -2,7 +2,7 @@
 - 👀 I’m interested in cyber security and i know LITERALLY NOTHING
 - 🌱 I’m currently learning nothing
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 📫 How to reach me 
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I play CodM :P
 
